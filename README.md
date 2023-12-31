@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Thuoke
+- 👀 Welcome ...!![IMG_20231117_171211](https://github.com/Thuoke/Thuoke/assets/155301784/f90c9c6a-1ee3-42f0-8815-84d734e001eb)
